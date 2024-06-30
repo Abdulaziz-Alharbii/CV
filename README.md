@@ -1,1 +1,0 @@
-# Panorama_CVproject
